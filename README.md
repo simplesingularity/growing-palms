@@ -44,7 +44,7 @@ Ensure that you have dug the site deep enough and fill back the soil so that the
 ## Fertilization schedule
 Do not fertilize your palm trees until May 1st. Most palm trees will not use the fertilizer until the weather has stabilized and it may even be hurt by early fertilization. I recommend 3-month plant spikes with NPK+micro and macro or alternatively a 3-month organic bag of essentially bone meal mixture for palm trees. Unless you live in a subtropical climate that does not get very cold in the wintertime, do NOT use a slow release fertilizer at this point. You do not want active nitrogen in the soil during winter time in zone 8A/B because it will cause more damage and rot to the tree. The best thing to do is to fertilize once in May and to not add any more for the rest of the year. If for some reason you feel like you do need to do an additional fertilization, use a short-term (1-3 week) water souluble full (NPK+micro,macro) fertilizer and no later than August 1st.
 
-# Caring for your existing palm
+# Caring for your existing palm (Chapter 4)
 ## Rot and fungus
 If you have added fertilizer too late in the year, or the wrong type of fertilizer (slow release for example) instead of a 3 month fertilizer, and your palms suffered cold damage and rot, the best treatment for this is to remove rotted foliage and treat it (pour it generously) with hydrogen peroxide in the spear every day for 2 weeks and as-needed after that. The same applies for banana plants. It can also be treated with copper fungicide additionally. Keep an eye open for pests that will eat away at rotted foliage such as worms and rolly pollys. Treat with Sevin dust in the crown if spotted.
 
