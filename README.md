@@ -19,10 +19,10 @@ As soon as your seeds emerge from their casing they are looking to grow downward
 
 ## Types and temperature
 Some palms require heat to germinate, others require *ambient room temperature (e.g. 70-72 degrees). Here are some examples of palms that need different requirements:
-[*] Pindo palm (Butia Odorata), bottom or top heat, moist, straight perlite medium to prevent rot (2 weeks this way)
-[*] Chinese windmill palm (Trachycarpus Fortunei), ambient room temp* or colder, moist medium such as coco coir
-[*] Trunking Sabal palm (Sabal Palmetto), ambient room temp* or hotter, moist medium such as coco coir mixed with perlite to prevent molding
-[*] Sylvester date palm (Phoenix Sylvestris), moist medium such as coco coir mixed with perlite to prevent molding
+* Pindo palm (Butia Odorata), bottom or top heat, moist, straight perlite medium to prevent rot (2 weeks this way)
+* Chinese windmill palm (Trachycarpus Fortunei), ambient room temp* or colder, moist medium such as coco coir
+* Trunking Sabal palm (Sabal Palmetto), ambient room temp* or hotter, moist medium such as coco coir mixed with perlite to prevent molding
+* Sylvester date palm (Phoenix Sylvestris), moist medium such as coco coir mixed with perlite to prevent molding
 
 # Growing in a container (Chapter 2)
 ## Pot
