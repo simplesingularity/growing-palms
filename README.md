@@ -1,5 +1,5 @@
 # growing-palms
-Growing palm trees in zone 8A/B - Tried and tested methods
+Growing palm trees in zone 8A/B - Tried and tested methods for a cold environment (mostly changes fertilization schedule)
 
 # Starting from seed (Chapter 1)
 ## Mold and ventilation
