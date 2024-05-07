@@ -34,7 +34,7 @@ At this point I'm assuming you have at least two leaves on your seedling. If not
 ## Medium
 I have used anything from pinebark to topsoil and sand mixtures. The palms are not very picky as long as the soil will drain. Poly coated slow release fertilizer is used in combination with a well draining and/or otherwise infertile medium to achieve a good potting mix. 
 
-# Planting your palm tree from a pot
+# Planting your palm tree from a pot (Chapter 3)
 ## Site
 Choose a site with full sunlight unless you have an understory type palm tree. For Pindo palms in heavy clay soil you may dig a circle 2 feet away and around your palm tree and backfill with gravel to create a simulated well draining soil. They will thrive this way and I have even revived dying Pindo palms this way.
 
