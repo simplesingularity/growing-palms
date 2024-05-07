@@ -46,7 +46,7 @@ Do not fertilize your palm trees until May 1st. Most palm trees will not use the
 
 # Caring for your existing palm
 ## Rot and fungus
-If you have added fertilizer too late in the year, or the wrong type of fertilizer (slow release for example) instead of a 3 month fertilizer, and your palms suffered cold damage and rot, the best treatment for this is to remove rotted foliage and treat it (pour it generously) with hydrogen peroxide in the spear every day for 2 weeks and as-needed after that. The same applies for banana plants. It can also be treated with copper fungicide additionally.
+If you have added fertilizer too late in the year, or the wrong type of fertilizer (slow release for example) instead of a 3 month fertilizer, and your palms suffered cold damage and rot, the best treatment for this is to remove rotted foliage and treat it (pour it generously) with hydrogen peroxide in the spear every day for 2 weeks and as-needed after that. The same applies for banana plants. It can also be treated with copper fungicide additionally. Keep an eye open for pests that will eat away at rotted foliage such as worms and rolly pollys. Treat with Sevin dust in the crown if spotted.
 
 ## Pests
 After planting your palm, the biggest and fastest threat to it is fire ants. I personally treat the surrounding soil with Sevin dust and usually only 1 application is needed. It keeps the ants at bay. Fire ants will consume the plant roots.
