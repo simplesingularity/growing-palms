@@ -3,7 +3,7 @@ Growing palm trees in zone 8A/B - Tried and tested methods for a cold environmen
 
 # Starting from seed (Chapter 1)
 ## Mold and ventilation
-Always use a well ventilated area to deter mold such an exhaust fan especially if germinated indoors. A pouros media is recommended.
+Always use a well ventilated area to deter mold such an exhaust fan especially if germinated indoors. A porous media is recommended.
 
 ## Medium
 Peat moss is not recommended because of the density and higher chances of mold. Use either coconut coir and perlite/vermiculite or moist spagnum moss.
