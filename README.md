@@ -36,7 +36,7 @@ I have used anything from pinebark to topsoil and sand mixtures. The palms are n
 
 # Planting your palm tree from a pot (Chapter 3)
 ## Site
-Choose a site with full sunlight unless you have an understory type palm tree. For Pindo palms in heavy clay soil you may dig a circle 2 feet away and around your palm tree and backfill with gravel to create a simulated well draining soil. They will thrive this way and I have even revived dying Pindo palms this way.
+Choose a site with full sunlight unless you have an understory type palm tree. For Pindo palms in heavy clay soil you may dig a circle 2 feet away and around your palm tree and backfill with gravel to create a simulated well draining soil. They will thrive this way and I have even revived dying Pindo palms this way. Another option for heavy red clay soil is gypsum powder. To use it, dig a hole two to three times the depth you want it and put the gypsum powder on the bottom of the hole and water it in. Let sit well and drain into the clay before filling it back in.
 
 ## Planting
 Ensure that you have dug the site deep enough and fill back the soil so that the roots have soft soil to grow into downwards. This will make your palm grow taller and stronger than ever. Do not amend the soil when planting your palm tree, and ensure to water it frequently after planting. Another option for heavy red clay soil is to mix in some topsoil or other type of wood chunks or organic material to improve drainage.
